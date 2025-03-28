@@ -4,4 +4,4 @@ NAME-PARTHAPU NEEHARIKA
 
 POSITION - WEB DEVELOPER INTERN
 
-OUTPUT:- ![Image](https://github.com/user-attachments/assets/9ac02109-b2e9-468a-8cd6-54979cb45226)
+OUTPUT:- ![Image](https://github.com/user-attachments/assets/386e9130-8457-492b-8f1b-8553e0e49670)
